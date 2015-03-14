@@ -1,0 +1,1 @@
+Local para troca de experiências, informações, arquivos, vídeos e fórum da turma formada em 05/08/2012 no curso GERENCIAMENTO DE PROJETOS, administrado por Laércio Campi da FGV.
